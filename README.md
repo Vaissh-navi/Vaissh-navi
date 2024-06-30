@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Vaissh-navi
-- 👀 I’m interested in CP.
+- Pursuing B.Tech in Computer Science from IIT Delhi. Currently a third year student.
 - 📫 How to reach me email-vaishnavibisen2003@gmail.com
