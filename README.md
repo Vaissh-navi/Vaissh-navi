@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Vaissh-navi
-- Pursuing B.Tech in Computer Science from IIT Delhi. Currently a third year student.
+- Pursuing B.Tech in Electrical Department from IIT Delhi. Currently a third year student.
 - 📫 How to reach me email-vaishnavibisen2003@gmail.com
